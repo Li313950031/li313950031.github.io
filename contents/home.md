@@ -8,6 +8,8 @@ undergraduate
 
 Email: 3131950031@qq.com
 
+Native Place：河南省南阳市
+
 #### Education
-Full-time undergraduate students of Zhoukou Normal University,2023—2027.\
+Full-time undergraduate students of Zhoukou Normal University,2023—2027.
 
